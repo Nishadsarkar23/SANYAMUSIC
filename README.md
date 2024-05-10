@@ -1,1 +1,1 @@
-# SANYAMUSIC
+https://github.com/Nishadsarkar23/SANYAMUSIC/blob/Master/README%20%281%29.md
